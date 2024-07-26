@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Janijanie
+- 👋 Hi, I’m Glenmay a.k.a. @Janijanie
 - 👀 I’m interested in ...reading interesting article
 - 🌱 I’m currently learning ... alot on many things
 - 💞️ I’m looking to collaborate on ... ideas
