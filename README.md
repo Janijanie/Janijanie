@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... alot on many things
 - 💞️ I’m looking to collaborate on ... ideas
 - 📫 How to reach me ... is when you are willing to
-- 😄 Pronouns: ... she
+- 😄 Pronouns: ... She
 - ⚡ Fun fact: ... I can be serious at the same time I can be funny.
 
 <!---
